@@ -1,10 +1,4 @@
                    بسم الله الرحمن الرحيم                       
-I am editing the README file. Adding some more details about the project description.
 
-if you have this buty 
-🐱
-in the git hub Read me it works baby it works الحمد لله
-just the little thing you know us
 
-some stuff
-some stuff
+IT works ya zemeki 🐱
